@@ -1,4 +1,4 @@
-#  
+#  be a lucky block secure Scripts offers the most advanced be a lucky block Script, with infinite resources and custom skins. Perfect for dominating
 
 
 
